@@ -1,2 +1,2 @@
 # momjjang
-momjjang
+문해알 에이쁠을 받기 위한 멸치들의 처절한 발악
